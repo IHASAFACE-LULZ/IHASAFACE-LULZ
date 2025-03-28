@@ -1,7 +1,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mqxe2ykx9hqvu8r6zuna1d1p3&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=863232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=stalkers"> </p>
-<p align="center"> harvey, noah, brad, ihasafacelulz, griefer, rochas313 (i like being called characters lol)</p>
+<p align="center"> harvey, noah, ihasafacelulz, griefer, brad. (i like being called characters lol)</p>
 <p align="center"> <ins> check these cool swag links out </ins> </p>
 
 <p align="center"> ____________________________________________________________ </p>

@@ -12,7 +12,7 @@
 
 <p align="center"> <sub> free c*h </sub> </p>
 <p align="center"> <ins> Cotton candy skies, why can't you be mine? </ins> </p>
-<p align="center"> <ins> Always on my mind, I'm running out of time!! (;´ρ`) </ins> </p>
+<p align="center"> <ins> Always on my mind, I'm running out of time!! (;´ꞈ`) </ins> </p>
 
 <div align="center">
 

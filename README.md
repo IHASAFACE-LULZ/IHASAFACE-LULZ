@@ -13,6 +13,10 @@
 <p align="center"> <sub> free c*h </sub> </p>
 <p align="center"> <ins> I love you, Taphiu, you cut it out. </ins> </p>
 
+<div align="center">
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mqxe2ykx9hqvu8r6zuna1d1p3&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=863232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+<div align="center">
 
 <p align="center"> _____________________________________________________________________________________________________________________________ </p>

@@ -1,9 +1,11 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=stalkers"> </p>
 
+<p align="center"> <ins> "Hey fern!! Um,, I'm sending you this video over email.. :P" </ins> </p>
+
 ![image](https://github.com/user-attachments/assets/37e76ca7-99c8-4a14-8ccb-f941bbfb7119)
 
 <p align="center"> <ins> profile looks better on pc </ins> </p>
-<p align="center"> <ins> harvey, noah, ihasafacelulz, griefer, brad </ins> </p>
+<p align="center"> harvey, noah, ihasafacelulz, griefer, brad </p>
 <p align="center"> check these cool swag links out </p>
 
 <p align="center"> ____________________________________________________________ </p>
@@ -11,8 +13,7 @@
 <p align="center"> <a href="https://gr13f3rrr.straw.page">strawpage</a> ₊ <a href="https://rentry.co/5iiiw9mx">rentry</a> ₊ <a href="https://c00lestkiddintown.straw.page">c00lkidd</a> ₊ <a href="https://https://github.com/br0ken-spawn">brokenspawn</a> ₊ <a href="https://https://github.com/MAFIOSO-DREAMGAME">mafioso</a> </p>
 
 <p align="center"> <sub> free c*h </sub> </p>
-<p align="center"> <ins> Cotton candy skies, why can't you be mine? </ins> </p>
-<p align="center"> <ins> Always on my mind, I'm running out of time!! (;´ꞈ`) </ins> </p>
+<p align="center"> <ins> "I.. ok. I should- end this, before it gets to much. sorry." </ins> </p>
 
 <div align="center">
 

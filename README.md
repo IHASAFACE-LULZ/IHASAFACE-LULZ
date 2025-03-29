@@ -2,9 +2,9 @@
 
 ![image](https://github.com/user-attachments/assets/37e76ca7-99c8-4a14-8ccb-f941bbfb7119)
 
-<p align="center"> profile looks better on pc</p>
-<p align="center"> harvey, noah, ihasafacelulz, griefer, brad</p>
-<p align="center"> <ins> check these cool swag links out </ins> </p>
+<p align="center"> <ins> profile looks better on pc </ins> </p>
+<p align="center"> <ins> harvey, noah, ihasafacelulz, griefer, brad </ins> </p>
+<p align="center"> check these cool swag links out </p>
 
 <p align="center"> ____________________________________________________________ </p>
 

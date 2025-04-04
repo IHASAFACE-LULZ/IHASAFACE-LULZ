@@ -21,6 +21,6 @@
 
 <div align="center">
 
-<p align="center"> <ins> pfp by @sammzyo_o on TWT </ins> </p>
+<p align="center"> <ins> pfp by @sillykittycore on TWT </ins> </p>
 
 <p align="center"> _____________________________________________________________________________________________________________________________ </p>

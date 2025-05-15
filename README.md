@@ -21,6 +21,7 @@
 
 <div align="center">
 
-<p align="center"> <ins> pfp by me </ins> </p>
+<p align="center"> <ins> pfp by @C4TASTROPHIE
+ </ins> </p>
 
 <p align="center"> _____________________________________________________________________________________________________________________________ </p>

@@ -21,7 +21,7 @@
 
 <div align="center">
 
-<p align="center"> <ins> pfp by @C4TASTROPHIE
+<p align="center"> <ins> pfp by @tenmou on github
  </ins> </p>
 
 <p align="center"> _____________________________________________________________________________________________________________________________ </p>

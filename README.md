@@ -10,7 +10,7 @@
 
 <p align="center"> ____________________________________________________________ </p>
 
-<p align="center"> <a href="https://noahsters.straw.page">strawpage</a> ₊ <a href="https://rentry.co/5iiiw9mx">rentry</a> ₊ <a href="https://ihasafacelolz.straw.page">facelulz parody acc</a> ₊ <a href="https://pronouns.cc/@IHasAFaceLULZ">pronouns.cc</a> ₊ <a href="https://spacehey.com/ihasnofacelulz">spacehey</a> </p>
+<p align="center"> <a href="https://noahsters.straw.page">strawpage</a> ₊ <a href="https://rentry.co/d8yzhtmf">rentry</a> ₊ <a href="https://ihasafacelolz.straw.page">facelulz parody acc</a> ₊ <a href="https://pronouns.cc/@IHasAFaceLULZ">pronouns.cc</a> ₊ <a href="https://spacehey.com/ihasnofacelulz">spacehey</a> </p>
 
 <p align="center"> <sub> free c*h </sub> </p>
 <p align="center"> <ins> "I.. ok. I should- end this, before it gets to much. sorry." </ins> </p>

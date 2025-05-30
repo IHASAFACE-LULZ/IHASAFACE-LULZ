@@ -21,7 +21,7 @@
 
 <div align="center">
 
-<p align="center"> <ins> pfp by me
+<p align="center"> <ins> pfp by idk
  </ins> </p>
 
 <p align="center"> _____________________________________________________________________________________________________________________________ </p>

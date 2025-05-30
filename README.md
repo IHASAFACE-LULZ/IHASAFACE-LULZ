@@ -5,7 +5,7 @@
 ![image](https://github.com/user-attachments/assets/37e76ca7-99c8-4a14-8ccb-f941bbfb7119)
 
 <p align="center"> <ins> profile looks better on pc </ins> </p>
-<p align="center"> noah, ihasafacelulz, griefer, brad </p>
+<p align="center"> noah, ihasafacelulz, griefer, brandon </p>
 <p align="center"> check these cool swag links out </p>
 
 <p align="center"> ____________________________________________________________ </p>

@@ -1,15 +1,24 @@
 hi my names noah
+
 you can also call me lulz, ace, griefer, or Brando i really dont care lol
+-
 
 i have huge interests for roblox args and roblox myths
+
 aspiring myth hunter
+-
 
 i don't care if you talk to me or not really :p but i am very busy alot of the time heres a list of the stuff im usually busy on
-school (obviously), i have finals
-roblox myth hunting :-)
-working on my roblox arg
-gooning (joke)
 
-other than roblox args and myths i have some interest for half life, lilo and stitch, Minecraft, blocktales, rainworld, the lego batman movie (or just all the lego movies in general except ninjago), and alot more
+school (obviously), i have finals
+
+roblox myth hunting :-)
+
+working on my roblox arg ^w^
+
+gooning (joke)
+-
+
+other than args and myths i have some interest for half life, lilo and stitch, Minecraft, blocktales, rainworld, the lego batman movie (or just all the lego movies in general except ninjago), and alot more
 
 im usually afk 90% of the time

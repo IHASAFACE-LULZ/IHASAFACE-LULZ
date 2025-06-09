@@ -9,7 +9,7 @@
 
 <p align="center"> ____________________________________________________________ </p>
 
-<p align="center"> <a href="https://noahsters.straw.page">strawpage</a> ₊ <a href="https://rentry.co/5iiiw9mx">rentry</a> ₊ <a href="https://pronouns.cc/@IHasAFaceLULZ">pronouns.cc</a> </p>
+<p align="center"> <a href="https://noahsters.straw.page">strawpage</a> ₊ <a href="https://rentry.co/d8yzhtmf">rentry</a> ₊ <a href="https://pronouns.cc/@IHasAFaceLULZ">pronouns.cc</a> </p>
 
 <p align="center"> <sub> placeholder </sub> </p>
 <p align="center"> <ins> placeholder </ins> </p>

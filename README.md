@@ -6,7 +6,7 @@ _
 
 i have huge interests for roblox args and roblox myths
 
-aspiring myth hunter
+myth hunter
 
 _
 

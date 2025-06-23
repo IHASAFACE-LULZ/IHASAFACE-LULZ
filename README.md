@@ -11,7 +11,7 @@
 
 <p align="center"> 𓏵 </p> 
 
-<p align="center"> <a href="https://noahsters.straw.page">strawpage</a> ₊ <a href="https://rentry.co/d8yzhtmf">rentry</a> ₊ <a href="https://artfight.net/~noahsters">artfight</a> <a href="https://tamanotchi.world/u/15947">tamanotchi</a> </p>
+<p align="center"> <a href="https://noahsters.straw.page">strawpage</a> <a href="https://rentry.co/d8yzhtmf">rentry</a> <a href="https://artfight.net/~noahsters">artfight</a> <a href="https://tamanotchi.world/u/15947">tamanotchi</a> </p>
 
 <p align="center"> <sub> placeholder </sub> </p>
 <p align="center"> <ins> placeholder </ins> </p>

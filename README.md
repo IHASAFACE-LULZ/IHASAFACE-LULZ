@@ -2,7 +2,7 @@
 ![image](https://github.com/user-attachments/assets/07d6a9ee-89bf-4194-93d9-3dafd0094b3c)
 
 
-<p align="center"> <ins> noah ^w^ </ins> </p>
+<p align="center"> <ins> noah, (ask for other names.) </ins> </p>
 
 <p align="center"> roblox myth hunter + huge roblox arg fan </p>
 

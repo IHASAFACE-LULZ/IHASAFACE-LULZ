@@ -1,20 +1,35 @@
-hi my names noah
 
-you can also call me lulz, ace, griefer, or Brandon i really dont care lol
+![image](https://github.com/user-attachments/assets/07d6a9ee-89bf-4194-93d9-3dafd0094b3c)
 
-_
 
-i have huge interests for roblox args and roblox myths
+<p align="center"> <ins> remaking </ins> </p>
 
-myth hunter
+<p align="center"> <ins> placeholder </ins> </p>
+<p align="center"> placeholder </p>
 
-_
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=stalkers"> </p>
 
-i don't care if you talk to me or not really :p but i am very busy alot of the time
-_
+<p align="center"> 𓏵 </p> 
 
-other than args and myths i have some interest for half life, lilo and stitch, Minecraft, blocktales, rainworld, the lego batman movie (or just all the lego movies in general except ninjago), and alot more
+<p align="center"> <a href="https://noahsters.straw.page">strawpage</a> ₊ <a href="https://rentry.co/d8yzhtmf">rentry</a> ₊ <a href="">pronouns.cc</a> </p>
 
-im usually afk 90% of the time
+<p align="center"> <sub> placeholder </sub> </p>
+<p align="center"> <ins> placeholder </ins> </p>
+
+<div align="center">
+<p align="center"> 𓏵 </p>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mqxe2ykx9hqvu8r6zuna1d1p3&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=863232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="center"> 𓏵 </p> 
+
+<div align="center">
+
+<p align="center"> <ins> pfp by umm i forgot </ins> </p>
+
+![image](https://github.com/user-attachments/assets/07d6a9ee-89bf-4194-93d9-3dafd0094b3c)
+
+
+
+
 
 

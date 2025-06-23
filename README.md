@@ -6,7 +6,7 @@
 
 <p align="center"> roblox myth hunter + huge roblox arg fan </p>
 
-<p align="center"> <ins> late/0 responses, I'm almost always afk. </ins> </p>
+<p align="center"> <ins> sign my strawpage. </ins> </p>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=🐇"> </p>
 

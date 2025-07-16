@@ -25,7 +25,7 @@
 
 <div align="center">
 
-<p align="center"> <ins> pfp by me. </ins> </p>
+<p align="center"> <ins> pfp by uhhh i forgot </ins> </p>
 
 ![image](https://github.com/user-attachments/assets/07d6a9ee-89bf-4194-93d9-3dafd0094b3c)
 

@@ -16,7 +16,8 @@
 <p align="center"> <sub> basic dni , im not sensitive at all im fine with most stuff </sub> </p>
 <p align="center"> <ins> "guess I'm stuck forever by the glue,, oh, and you." </ins> </p>
 
-
+<div align="center">
+  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mqxe2ykx9hqvu8r6zuna1d1p3&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=863232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <p align="center">  ⏔⏔⏔⏔⏔⏔⏔⏔⏔ </p> 
 

@@ -1,11 +1,11 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="400" height="28" alt="image" src="https://github.com/user-attachments/assets/59a5ccc6-7e22-4fc0-be64-ded112afe6b3" /><img width="400" height="28" alt="image" src="https://github.com/user-attachments/assets/e70ee0c0-4b43-4728-8dd7-176c8360ddf3" />
 
 
-<p align="center"> <ins> noah, (ask for other names.) </ins> </p>
+<p align="center"> <ins> noah, (ask for other names) </ins> </p>
 
-<p align="center"> roblox myth hunter + huge roblox arg fan </p>
+<p align="center"> horror, args, creepypasta lover </p>
 
-<p align="center"> <ins> sign my strawpage. </ins> </p>
+<p align="center"> <ins> sign my strawpage -3- </ins> </p>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=🐇"> </p>
 

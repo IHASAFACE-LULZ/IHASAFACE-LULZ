@@ -26,7 +26,8 @@
 
 <p align="center"> <ins> pfp by uhhh i forgot </ins> </p>
 
-![image](https://github.com/user-attachments/assets/07d6a9ee-89bf-4194-93d9-3dafd0094b3c)
+<img width="420" height="156" alt="image" src="https://github.com/user-attachments/assets/dbcbf847-4597-4407-9d90-2400e2c43333" />
+
 
 
 

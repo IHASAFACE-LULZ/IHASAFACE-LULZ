@@ -1,5 +1,4 @@
-
-![image](https://github.com/user-attachments/assets/07d6a9ee-89bf-4194-93d9-3dafd0094b3c)
+<img width="400" height="28" alt="image" src="https://github.com/user-attachments/assets/59a5ccc6-7e22-4fc0-be64-ded112afe6b3" /><img width="400" height="28" alt="image" src="https://github.com/user-attachments/assets/e70ee0c0-4b43-4728-8dd7-176c8360ddf3" />
 
 
 <p align="center"> <ins> noah, (ask for other names.) </ins> </p>

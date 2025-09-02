@@ -26,6 +26,8 @@
 
 <p align="center"> <ins> pfp by uhhh i forgot </ins> </p>
 
+![image](https://github.com/user-attachments/assets/10852f02-5146-42d8-8367-be8347dd8af1) ![image](https://github.com/user-attachments/assets/28cb7643-5d6f-4c8c-b632-a5cd662af063) ![image](https://github.com/user-attachments/assets/ee2a4c72-9046-42b0-999c-a82bad435d42) ![image](https://github.com/user-attachments/assets/edb3e691-558d-43df-92b3-eafabc7dbe3f) ![image](https://github.com/user-attachments/assets/8909a32d-7966-453d-b990-675ac9558dd6) ![image](https://github.com/user-attachments/assets/719637b8-3492-4327-96de-abeaf462e210) ![image](https://github.com/user-attachments/assets/888e14e9-031a-4dfc-bc1b-2ec23dea1e55) 
+
 <img width="420" height="156" alt="image" src="https://github.com/user-attachments/assets/dbcbf847-4597-4407-9d90-2400e2c43333" />
 
 

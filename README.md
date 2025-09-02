@@ -1,5 +1,6 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="400" height="28" alt="image" src="https://github.com/user-attachments/assets/59a5ccc6-7e22-4fc0-be64-ded112afe6b3" /><img width="400" height="28" alt="image" src="https://github.com/user-attachments/assets/e70ee0c0-4b43-4728-8dd7-176c8360ddf3" />
 
+<p align="center">  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ </p> 
 
 <p align="center"> <ins> noah, (ask for other names) </ins> </p>
 
@@ -9,7 +10,7 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=🐇"> </p>
 
-<p align="center">  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ </p> 
+<p align="center">  ⏔⏔⏔⏔⏔⏔⏔⏔⏔ </p> 
 
 <p align="center"> <a href="https://noahsters.straw.page">strawpage</a> . <a href="https://artfight.net/~noahsters">artfight</a> . <a href="https://tamanotchi.world/u/15947">tamanotchi</a> </p>
 

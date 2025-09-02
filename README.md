@@ -13,7 +13,7 @@
 
 <p align="center"> <a href="https://noahsters.straw.page">strawpage</a> . <a href="https://artfight.net/~noahsters">artfight</a> . <a href="https://tamanotchi.world/u/15947">tamanotchi</a> </p>
 
-<p align="center"> <sub> free c*h. </sub> </p>
+<p align="center"> <sub> basic dni , im not sensitive at all im fine with most stuff </sub> </p>
 <p align="center"> <ins> "guess I'm stuck forever by the glue,, oh, and you." </ins> </p>
 
 <div align="center">

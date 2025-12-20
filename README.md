@@ -30,7 +30,7 @@
 <p align="center"> <ins> pfp by uhhh i forgot </ins> </p>
 
 <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/70c11db6-73db-4d2a-9642-f6524a3a931a" />
-<img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/af0035f6-1fd5-4a60-b044-92b6486b724e" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/5661631d-4608-49f1-ada5-2607d916357d" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/66c51d41-e7fe-4b68-866d-1067d37a62ef" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/20cb2d12-3819-48f8-a274-472a82839948" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/6acaa9d4-5764-4ebd-9ab5-ff1c2bd7dde8" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/956217b7-2b83-46ad-8120-e4ee14b1d17e" />
+<img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/af0035f6-1fd5-4a60-b044-92b6486b724e" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/66c51d41-e7fe-4b68-866d-1067d37a62ef" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/20cb2d12-3819-48f8-a274-472a82839948" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/5661631d-4608-49f1-ada5-2607d916357d" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/6acaa9d4-5764-4ebd-9ab5-ff1c2bd7dde8" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/956217b7-2b83-46ad-8120-e4ee14b1d17e" />
 
 
 

@@ -5,7 +5,7 @@
 
 <p align="center">  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ </p> 
 
-<p align="center"> <ins> noah, wemmbu </ins> </p>
+<p align="center"> <ins> noah, wemmbu, d3rlord3 </ins> </p>
 
 <p align="center"> mcyt and arg lover </p>
 
@@ -29,9 +29,20 @@
 
 <p align="center"> <ins> pfp by uhhh i forgot </ins> </p>
 
-![image](https://github.com/user-attachments/assets/10852f02-5146-42d8-8367-be8347dd8af1) ![image](https://github.com/user-attachments/assets/28cb7643-5d6f-4c8c-b632-a5cd662af063) ![image](https://github.com/user-attachments/assets/ee2a4c72-9046-42b0-999c-a82bad435d42) ![image](https://github.com/user-attachments/assets/edb3e691-558d-43df-92b3-eafabc7dbe3f) ![image](https://github.com/user-attachments/assets/8909a32d-7966-453d-b990-675ac9558dd6) ![image](https://github.com/user-attachments/assets/719637b8-3492-4327-96de-abeaf462e210) ![image](https://github.com/user-attachments/assets/888e14e9-031a-4dfc-bc1b-2ec23dea1e55) <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/1dbb52bb-6b97-4f0d-ae60-eb1d79f11e0c" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/38a87f2a-cfef-4664-951b-3724e86ff2d6" /> <img width="94" height="50" alt="image" src="https://github.com/user-attachments/assets/ed9038bd-5bee-4c9d-ab04-bec9335f4d7a" /> <img width="94" height="50" alt="image" src="https://github.com/user-attachments/assets/02250707-61f1-4f47-90b7-c039adfa680f" /> <img width="102" height="59" alt="image" src="https://github.com/user-attachments/assets/4bb9588b-7549-4163-8d74-dc20ddf1b5af" /> <img width="95" height="56" alt="image" src="https://github.com/user-attachments/assets/9fc0cbd1-4db7-4188-a372-b9cb95a05e8f" /> <img width="95" height="56" alt="image" src="https://github.com/user-attachments/assets/5c1345b3-da29-4d6f-9d17-de4fd3bb56ae" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/78ea91aa-76cb-4669-bce3-aca08ab78dd5" />
+<img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/70c11db6-73db-4d2a-9642-f6524a3a931a" />
+<img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/af0035f6-1fd5-4a60-b044-92b6486b724e" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/5661631d-4608-49f1-ada5-2607d916357d" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/66c51d41-e7fe-4b68-866d-1067d37a62ef" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/20cb2d12-3819-48f8-a274-472a82839948" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/6acaa9d4-5764-4ebd-9ab5-ff1c2bd7dde8" /> <img width="50" height="56" alt="image" src="https://github.com/user-attachments/assets/956217b7-2b83-46ad-8120-e4ee14b1d17e" />
 
-<img width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/ab6eea8f-00ce-4056-83c0-0100ff49c416" />
+
+
+
+
+
+<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/eda2bff9-d16e-45ee-9dfe-2f374fa24b45" /><img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/cf45defe-bb59-4d9d-969d-fa7130ec374b" /> <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/dd12aa4f-9b25-47dd-bf3a-b7e86bf149ed" /><img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/21a65b1b-8aed-4cd9-8c56-5703ba17df64" />
+
+
+
+<img width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/ab6eea8f-00ce-4056-83c0-0100ff49c416" /> 
+
 
 
 
@@ -42,8 +53,6 @@
 
 
 <img width="458" height="270" alt="image" src="https://github.com/user-attachments/assets/929af2e6-8c7e-4ac2-bf38-3d48aeee2a08" />
-
-
 
 
 <p align="center"> <img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/274ed21b-4460-4c60-8555-d4951b27c09b" /><img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/274ed21b-4460-4c60-8555-d4951b27c09b" /> </p>

@@ -9,7 +9,7 @@
 
 <p align="center"> mcyt and arg lover </p>
 
-<p align="center"> <ins> sign my strawpage :p </ins> </p>
+<p align="center"> <ins> sign ata :p </ins> </p>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=👑"> </p>
 

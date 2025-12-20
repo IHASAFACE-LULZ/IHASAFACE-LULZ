@@ -1,22 +1,24 @@
-<img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/acd1d6eb-c729-49f3-a61a-e102ca8ce245" /><img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/acd1d6eb-c729-49f3-a61a-e102ca8ce245" /><img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/acd1d6eb-c729-49f3-a61a-e102ca8ce245" />
+<p align="center"> <img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/274ed21b-4460-4c60-8555-d4951b27c09b" /><img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/274ed21b-4460-4c60-8555-d4951b27c09b" /> </p>
+
+
 
 
 <p align="center">  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ </p> 
 
-<p align="center"> <ins> noah, (ask for other names) </ins> </p>
+<p align="center"> <ins> noah, wemmbu </ins> </p>
 
-<p align="center"> horror, args, creepypasta lover </p>
+<p align="center"> mcyt and arg lover </p>
 
-<p align="center"> <ins> sign my strawpage -3- </ins> </p>
+<p align="center"> <ins> sign my strawpage :p </ins> </p>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=🐇"> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=grey&label=👑"> </p>
 
 <p align="center">  ⏔⏔⏔⏔⏔⏔⏔⏔⏔ </p> 
 
-<p align="center"> <a href="https://noahsters.straw.page">strawpage</a> . <a href="https://www.pinterest.com/IHasAFaceLOLZ/_profile/_created/">pinterest</a> . <a href="https://tamanotchi.world/u/15947">tamanotchi</a> </p>
+<p align="center"> <a href="https://derlordd.straw.page">strawpage</a> . <a href="https://www.pinterest.com/IHasAFaceLOLZ/_profile/_created/">pinterest</a> . <a href="https://tamanotchi.world/u/15947">tamanotchi</a> </p>
 
 <p align="center"> <sub> basic dni , im not sensitive at all im fine with most stuff </sub> </p>
-<p align="center"> <ins> "guess I'm stuck forever by the glue,, oh, and you." </ins> </p>
+<p align="center"> <ins> "I don't speak german, but I can if you like." </ins> </p>
 
 <div align="center">
   
@@ -44,7 +46,5 @@
 
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="400" height="28" alt="image" src="https://github.com/user-attachments/assets/59a5ccc6-7e22-4fc0-be64-ded112afe6b3" /><img width="400" height="28" alt="image" src="https://github.com/user-attachments/assets/e70ee0c0-4b43-4728-8dd7-176c8360ddf3" />
-
-
+<p align="center"> <img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/274ed21b-4460-4c60-8555-d4951b27c09b" /><img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/274ed21b-4460-4c60-8555-d4951b27c09b" /> </p>
 

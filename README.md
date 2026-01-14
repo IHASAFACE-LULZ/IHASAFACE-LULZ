@@ -17,7 +17,7 @@
 
 <p align="center"> <sub> <a href="https://github.com/CaptainSweeper">Manepear.</a> </sub> </p>
 
- <a href="https://rentry.co/playfuulmassacre">RENTRY :3 <a href="https://d3rlord3.atabook.org/">atabook </a> </p>
+<p align="center"> <sub> <a href="https://rentry.co/playfuulmassacre">RENTRY :3 <a href="https://d3rlord3.atabook.org/">atabook </a> </p>
 
 <p align="center"> <sub> all info on rentry </sub> </p>
 <p align="center"> <ins> "Lost cause." </ins> </p>

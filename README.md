@@ -1,5 +1,6 @@
 <p align="center"> <img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/274ed21b-4460-4c60-8555-d4951b27c09b" /><img width="348" height="256" alt="image" src="https://github.com/user-attachments/assets/274ed21b-4460-4c60-8555-d4951b27c09b" /> </p>
 
+<img width="232" height="134" alt="image" src="https://github.com/user-attachments/assets/8309a1a0-7886-41b1-aff7-48c75a7a606c" />‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ my goats :3
 
 
 

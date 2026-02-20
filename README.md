@@ -6,7 +6,7 @@
 
  <p align="left">  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ۫ ׅ  ‎ ‎</p> <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> </p>
 
- <p align="left"> <sub> <a href="https://github.com/CaptainSweeper">Manepear.</a> </sub> </p>
+ <p align="left"> <sub> <a href="https://github.com/dummyinbed">Manepear.</a> </sub> </p>
 
  <p align="left"> <sub> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ <a href="https://rentry.co/playfuulmassacre">rentry ‎ ‎‎ ‎‎ ‎<a href="https://d3rlord3.atabook.org/">ata </a> </sub> </p>
 

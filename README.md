@@ -4,7 +4,7 @@
 
  ๋࣭   ࣪ ˖ <p align="center">  intp t ‎ ‎ ‎ ‎ minor </p> 
 
- <p align="left">  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ۫ ׅ  ‎ ‎</p> <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> </p>
+ <p align="left">  ‎  ‎ ‎ ‎ dont copy ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ۫ ׅ  ‎ ‎</p> <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> </p>
 
  <p align="left"> <sub> <a href="https://github.com/dummyinbed">Manepear.</a> </sub> </p>
 

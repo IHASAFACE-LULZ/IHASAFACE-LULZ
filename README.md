@@ -13,6 +13,10 @@
 
    <p align="center">                      ๋࣭   ࣪ ˖ </p>
 
+  <p align="right"> <sub>  ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎@eggiechan @olliverzzfailed OREOPUPPY (HAS NO GITHUB) #TEAMUNSTABLE </sub> </p>
+
+ <p align="left"><sub> ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎@dummyinbed @f3xabuse @tirgery123 @iTrapped2012 #CK </sub> </p>
+
    
       
 

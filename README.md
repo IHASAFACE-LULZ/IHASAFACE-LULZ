@@ -1,33 +1,15 @@
-<img align="left" width="442" height="736" alt="image" src="https://github.com/user-attachments/assets/a8071ab8-7850-4042-a32a-1d376a89c048" /> ‎ ‎
+<img align="left" width="492" height="786" alt="image" src="https://github.com/user-attachments/assets/def3397c-f391-4699-9762-0614b39f991b" /> ‎ ‎
 
-<p align="left">  noah ‎ ‎ wemmbu‎ </p> 
+<p align="left">  noah ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ wemmbu‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  d3rlord3 🏝️ </p> 
 
- ๋࣭   ࣪ ˖ <p align="center">  intp t ‎ ‎ ‎ ‎ minor </p> 
+<img width="90" height="69" alt="image" src="https://github.com/user-attachments/assets/a69ef909-f2c9-4135-a577-26072cc42913" />
+<p align="center">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎𓏲𓂃__𓂃__𓂃__𓂃__𓂃 </p>
+ <p align="left">   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎intp t ‎ ‎ ‎ ‎ minor </p>
+  ‎   ‎   ‎  <p align="left"> <img width="67" height="32" alt="image" src="https://github.com/user-attachments/assets/40bc92b0-8119-406f-826b-8a4163a0ac8a" />  ‎  ‎ 𓂃__𓂃⛱ 
 
- <p align="left">  ‎  ‎ ‎ ‎ dont copy ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ۫ ׅ  ‎ ‎</p> <p align="center"> <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> </p>
+   <p align="center">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="90" height="69" alt="image" src="https://github.com/user-attachments/assets/2fb7e77e-4290-494c-ad22-49b192b6e829" </img></p> 
 
- <p align="left"> <sub> <a href="https://github.com/dummyinbed">Manepear.</a> </sub> </p>
+ <p align="left">  ‎  ‎ ‎ ‎🌺 dont not copy ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ❀ ‎ ‎</p> 
+ <p align="left">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> </p> 
 
- <p align="left"> <sub> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ <a href="https://rentry.co/playfuulmassacre">rentry ‎ ‎‎ ‎‎ ‎<a href="https://d3rlord3.atabook.org/">ata </a> </sub> </p>
-
-
-   <p align="center">                      ๋࣭   ࣪ ˖ </p>
-
-  <p align="right"> <sub>  ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎@loonacpaws @olliverzzfailed @oreopuppyy #TEAMUNSTABLE #BFFS </sub> </p>
-
- <p align="left"><sub> ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎@dummyinbed @f3xabuse @tirgery123 @iTrapped2012 #CK </sub> </p>
-
-   
-      
-
-   
- <img width="59" height="26" alt="image" src="https://github.com/user-attachments/assets/d39142c4-29e4-4726-a257-6402d96fe123" /> <img width="59" height="26" alt="image" src="https://github.com/user-attachments/assets/fe20cd6d-2431-47eb-8ea9-01f3f66150c5" /> <img width="59" height="26" alt="image" src="https://github.com/user-attachments/assets/545ee1a7-4f7d-4da4-96f5-9ad9cc024106" /> <img width="59" height="26" alt="image" src="https://github.com/user-attachments/assets/38f21bbd-0ba7-4aeb-bf79-ab62bda05aad" /> <img width="59" height="26" alt="image" src="https://github.com/user-attachments/assets/1638da2b-b03d-44c2-ab30-999bbfd7297e" />
-
-
-
-
-
-
-
-
-https://i.postimg.cc/sXhdKq5y/image.png
+ <p align="left">  ‎ ‎ ‎ ‎ ‎ ‎ ‎<a href="https://github.com/dummyinbed">manepear.</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <a href="https://rentry.co/playfuulmassacre">rentry</a> ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎‎ ‎<a href="https://d3rlord3.atabook.org/">atabook </a>  </p> 

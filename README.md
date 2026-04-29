@@ -8,3 +8,5 @@
  ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎       <a href="https://github.com/dummyinbed">manepear.</a> ‎ ‎ ‎ ‎ ‎ <a href="https://rentry.co/playfuulmassacre">rentry</a> ‎ ‎‎  And thanks to you, I got a chance to see all the beauty of the universe.‎ ‎ ‎‎ ‎    ‎   ‎ ‎  (✿◠ᴗ◠)  ‎    ‎    ‎‎    ‎  ‎‎‎ ‎<a href="https://d3rlord3.atabook.org/">atabook </a> ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://whatever-you-do-at-the-crossroads-dont-turn-left.straw.page">strawpage </a>
 <p align="left"> <img width="500" height="70" alt="image" src="https://github.com/user-attachments/assets/44a84885-1a29-4d97-8f68-0733d8c26977" />
  </p>
+
+<sub> only looks good on pc </sub>

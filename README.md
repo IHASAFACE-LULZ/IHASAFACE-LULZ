@@ -1,15 +1,10 @@
-<img align="left" width="492" height="486" alt="image" src="https://github.com/user-attachments/assets/def3397c-f391-4699-9762-0614b39f991b" /> ‎ ‎
-
-<p align="left">  noah ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ wemmbu‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  ‎ ‎ ‎‎  ‎‎  ‎ ‎‎‎‎ ‎ ‎‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎  d3rlord3 / derek 🏝️ </p> 
-
-<img width="90" height="69" alt="image" src="https://github.com/user-attachments/assets/a69ef909-f2c9-4135-a577-26072cc42913" />
-<p align="center">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎𓏲𓂃__𓂃__𓂃__𓂃__𓂃 </p>
- <p align="left">   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎intp t ‎ ‎ ‎ ‎ minor </p>
-  ‎   ‎   ‎  <p align="left"> <img width="67" height="32" alt="image" src="https://github.com/user-attachments/assets/40bc92b0-8119-406f-826b-8a4163a0ac8a" />  ‎  ‎ 𓂃__𓂃⛱ 
-
-   <p align="center">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="70" height="39" alt="image" src="https://github.com/user-attachments/assets/2fb7e77e-4290-494c-ad22-49b192b6e829" </img></p> 
-
- <p align="left">  ‎  ‎ ‎ ‎🌺 dont not copy ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ❀ ‎ ‎</p> 
- <p align="left">  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> </p> 
-
- <p align="left">  ‎ ‎ ‎ ‎ ‎ ‎ ‎<a href="https://github.com/dummyinbed">manepear.</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <a href="https://rentry.co/playfuulmassacre">rentry</a> ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎    ‎ ‎‎ ‎ ‎‎ ‎  ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎‎ ‎<a href="https://d3rlord3.atabook.org/">atabook </a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ <a href="https://whatever-you-do-at-the-crossroads-dont-turn-left.straw.page">strawpage </a>  </p> 
+<img align="left" width="292" height="510" alt="image" src="https://github.com/user-attachments/assets/5762c01f-d15d-497c-a73e-8531594c4977" /> ‎ 
+<p align="center"> <img width="500" height="50" alt="image" src="https://github.com/user-attachments/assets/35f8b96e-acbd-4f6e-af27-1f540c374d1a" /> </p>
+<p align="left">                            ‎  ‎    ‎  ‎   ‎   ‎        ‎‎‎  ‎   ‎ ‎    ‎‎‎      ‎‎‎ ‎          ᭄᭡‎   ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎   ‎     ‎   ‎   ‎     ‎ ‎   ‎   ‎   ‎      noah</p>
+<p align="left"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎.˳˳.⋅│ ‎  ‎  ‎  ‎  ‎ derek ‎   ‎   ‎   ‎   ‎   ‎       ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎  ‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> ‎</p>
+<p align="left"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ │ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ .˳˳.⋅ ‎  ‎     ‎  ‎    wemmbu </p>
+<p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎╰</p> 
+<p align="center"> <img width="500" height="70" alt="image" src="https://github.com/user-attachments/assets/e72a42f3-42e2-4e86-83ec-12701cc19469" /> </p>
+ ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎       <a href="https://github.com/dummyinbed">manepear.</a> ‎ ‎ ‎ ‎ ‎ <a href="https://rentry.co/playfuulmassacre">rentry</a> ‎ ‎‎  And thanks to you, I got a chance to see all the beauty of the universe.‎ ‎ ‎‎ ‎    ‎   ‎ ‎  (✿◠ᴗ◠)  ‎    ‎    ‎‎    ‎  ‎‎‎ ‎<a href="https://d3rlord3.atabook.org/">atabook </a> ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://whatever-you-do-at-the-crossroads-dont-turn-left.straw.page">strawpage </a>
+<p align="left"> <img width="500" height="70" alt="image" src="https://github.com/user-attachments/assets/44a84885-1a29-4d97-8f68-0733d8c26977" />
+ </p>

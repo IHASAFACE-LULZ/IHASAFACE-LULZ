@@ -10,3 +10,7 @@
  </p>
 
 <sub> only looks good on pc </sub>
+
+
+
+https://docs.google.com/document/d/1FSxE7aYoUyT2Nr-ohe65MqrY-opjL45kQ3P9Y4j6Q_E/edit?usp=sharing literally ok read this

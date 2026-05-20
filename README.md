@@ -1,16 +1,1 @@
-<img align="left" width="292" height="510" alt="image" src="https://github.com/user-attachments/assets/5762c01f-d15d-497c-a73e-8531594c4977" /> ‎ 
-<p align="center"> <img width="500" height="50" alt="image" src="https://github.com/user-attachments/assets/35f8b96e-acbd-4f6e-af27-1f540c374d1a" /> </p>
-<p align="left">                            ‎  ‎    ‎  ‎   ‎   ‎        ‎‎‎  ‎   ‎ ‎    ‎‎‎      ‎‎‎ ‎          ᭄᭡‎   ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎   ‎     ‎   ‎   ‎     ‎ ‎   ‎   ‎   ‎      noah</p>
-<p align="left"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎.˳˳.⋅│ ‎  ‎  ‎  ‎  ‎ derek ‎   ‎   ‎   ‎   ‎   ‎       ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎  ‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=lightgrey&label=👑"> ‎</p>
-<p align="left"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎ │ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ .˳˳.⋅ ‎  ‎     ‎  ‎    wemmbu </p>
-<p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎╰</p> 
-<p align="center"> <img width="500" height="70" alt="image" src="https://github.com/user-attachments/assets/e72a42f3-42e2-4e86-83ec-12701cc19469" /> </p>
- ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎       <a href="https://github.com/dummyinbed">manepear.</a> ‎ ‎ ‎ ‎ ‎ <a href="https://rentry.co/playfuulmassacre">rentry</a> ‎ ‎‎  And thanks to you, I got a chance to see all the beauty of the universe.‎ ‎ ‎‎ ‎    ‎   ‎ ‎  (✿◠ᴗ◠)  ‎    ‎    ‎‎    ‎  ‎‎‎ ‎<a href="https://d3rlord3.atabook.org/">atabook </a> ‎ ‎ ‎ ‎  ‎ ‎ ‎ <a href="https://whatever-you-do-at-the-crossroads-dont-turn-left.straw.page">strawpage </a>
-<p align="left"> <img width="500" height="70" alt="image" src="https://github.com/user-attachments/assets/44a84885-1a29-4d97-8f68-0733d8c26977" />
- </p>
-
-<sub> only looks good on pc </sub>
-
-
-
-https://docs.google.com/document/d/1FSxE7aYoUyT2Nr-ohe65MqrY-opjL45kQ3P9Y4j6Q_E/edit?usp=sharing literally ok read this
+remaking soon 

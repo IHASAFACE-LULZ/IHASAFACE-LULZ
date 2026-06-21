@@ -6,7 +6,7 @@
 <p align="left"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎     ‎  ‎    wemmbu </p>
 <p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎𓏵</p> 
 <p align="center"> <img width="400" height="70" alt="image" src="https://i.postimg.cc/L4w0DC3h/tumblr-0c2a564c30410a15dd70596e49373763-316b5189-1280.png" /> </p>
- ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎       <a href="https://github.com/CONEXlONN">i was nothing but loyal</a> ‎ ‎ ‎ ‎ ‎ <a href="https://d3rlord3.atabook.org/">新book</a> ‎ ‎‎  dont you think its kind of dumb how we’re fighting for people way weaker than both of us‎ ‎ ‎‎ ‎    ‎   ‎ ‎   ‎    ‎    ‎‎    ‎⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ‎‎‎ ‎<a href="https://rentry.co/playfuulmassacre">rentry </a>⠀  ‎read rentry byi
+ ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎       <a href="https://github.com/CONEXlONN">i was nothing but loyal</a> ‎ ‎ ‎ ‎ ‎ <a href="https://d3rlord3.atabook.org/">新book</a> ‎ ‎‎  dont you think its kind of dumb how we’re fighting for people way weaker than both of us‎ ‎ ‎‎ ‎    ‎   ‎ ‎   ‎  ⠀⠀⠀  ‎‎‎ ‎<a href="https://rentry.co/playfuulmassacre">rentry </a>⠀  ‎read rentry byi
  </p>
 
 <sub> only looks good on pc </sub>

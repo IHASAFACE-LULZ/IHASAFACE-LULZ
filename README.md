@@ -12,3 +12,6 @@
 <sub> only looks good on pc </sub>
 
 <p align="center"> <img width="900" height="150" alt="image" src="https://i.postimg.cc/zvcjyMtz/Untitled1861-20260614171006.png" /> </p>
+
+https://docs.google.com/document/d/1MPDj9h3RrDdo_3b_-G_Zjs2kc14SRMQhVU4QU9Gw17A/edit?usp=sharing
+callout doc and clarification doc :3

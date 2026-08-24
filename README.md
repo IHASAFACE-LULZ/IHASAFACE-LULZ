@@ -14,6 +14,7 @@
 
 <p align="center"> <img width="900" height="150" alt="image" src="https://i.postimg.cc/J0zy5S7b/image-2026-08-03-174856666.png" /> </p>
 
+a bit inactive only because im chronically online on games and pony town makes me lag out
 
 
 

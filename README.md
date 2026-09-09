@@ -2,7 +2,7 @@
 
 <img align="right" width="400" height="420" alt="image" src="https://i.postimg.cc/BQRp4YNg/fdsfsfd.png" /> ‎ 
 
-<p align="center"> <img width=“270” height="240" alt="image" src="https://i.postimg.cc/RZVSCdFN/text.png" /> ‎</p>
+<p align="center"> <img width=“250” height="220" alt="image" src="https://i.postimg.cc/RZVSCdFN/text.png" /> ‎</p>
 
 
 

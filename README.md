@@ -1,6 +1,6 @@
 <p align="center"> <img width="720" height="200" alt="image" src="https://i.postimg.cc/ZR1nCdQs/arfchive.png" /> </p>
 
-<img align="right" width="400" height="420" alt="image" src="https://i.postimg.cc/BQRp4YNg/fdsfsfd.png" /> ‎ 
+<img align="right" width="380" height="420" alt="image" src="https://i.postimg.cc/BQRp4YNg/fdsfsfd.png" /> ‎ 
 
 <p align="center"> <img width=“250” height="220" alt="image" src="https://i.postimg.cc/RZVSCdFN/text.png" /> ‎</p>
 

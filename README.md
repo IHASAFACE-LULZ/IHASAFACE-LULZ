@@ -6,7 +6,7 @@
 
 <p align="center"> $\large\color{#A85465}{\textsf{only looks good on pc}}$ </p>
 <p align="center"> $\large\color{#7EBFBD}{\textsf{mentally ill    ‎ neurodivergent (im not woke + im diagnosed)}}$ </p>
-<p align="center"> $\large\color{#A85465}{\textsf{8w7 sp835 entp chol-phleg rl/O/E[I]}}$ </p>
+<p align="center"> $\large\color{#A85465}{\textsf{8w7 sp835 entp chol-phleg rc/O/E[I]}}$ </p>
 <p align="center"> $\large\color{#7EBFBD}{\textsf{i block freely}}$ </p>
 
 ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  [![strawpage](https://i.postimg.cc/VLbM7wMV/previous-chapter-(4).png)](https://sorceryring.straw.page) [![ata](https://i.postimg.cc/BnSFJKRf/image-2026-09-09-160017709-(2).png)](https://d3rlord3.atabook.org) [![commissions](https://i.postimg.cc/wBzGq0HW/image-2026-09-09-160915216-(1).png)](https://noahscommissionss.straw.page)

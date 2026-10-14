@@ -5,7 +5,7 @@
 <p align="center"> <img width=“250” height="220" alt="image" src="https://i.postimg.cc/RZVSCdFN/text.png" /> ‎</p>
 
 <p align="center"> $\large\color{#A85465}{\textsf{only looks good on pc}}$ </p>
-<p align="center"> $\large\color{#7EBFBD}{\textsf{mentally ill    ‎ neurodivergent (im not woke + im diagnosed)}}$ </p>
+<p align="center"> $\large\color{#7EBFBD}{\textsf{mentally ill    ‎ neurodivergent (im diagnosed btw)}}$ </p>
 <p align="center"> $\large\color{#A85465}{\textsf{8w7 sp835 entp chol-phleg rc/O/E[I]}}$ </p>
 <p align="center"> $\large\color{#7EBFBD}{\textsf{i block freely}}$ </p>
 
